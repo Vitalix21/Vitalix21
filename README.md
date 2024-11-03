@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Vitalix21
+- 👋 Hi, I’m @Vitalix21 from Ukraine
 - 👀 I’m interested in cybersecurity
 - 🌱 I’m currently learning English and smt else😁
 - 💞️ I’m looking to collaborate on ...
